@@ -1,4 +1,4 @@
 # iii
 # improve-injoin-by-involvement
 
-iii(improve injoin by involvement) is currency.
+iii(Improve Injoin by Involvement) is considered as a Brand, Vision and Currency.
